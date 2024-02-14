@@ -4,6 +4,7 @@ i love making projects about my favourite things:
 - FORMULA ONE! (simply simply lovely)
 - data analysis (visual proofs of ferrari fu****g their race strategy)
 
+in my free time i like to watch marvel, play cello and listen to music
 
 
 <!---
